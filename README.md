@@ -1,0 +1,1 @@
+![https://pp.vk.me/c621622/v621622318/3d4da/prLx1HSEWPQ.jpg](https://pp.vk.me/c621622/v621622318/3d4da/prLx1HSEWPQ.jpg)
